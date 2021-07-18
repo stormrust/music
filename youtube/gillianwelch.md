@@ -3,6 +3,8 @@
 
 [Dave Rawlings & Gillian Welch - Method Acting + Cortez The Killer](https://www.youtube.com/watch?v=gxPTQDP2bRQ)
 
+[Gillian Welch and Dave Rawlings - The way it will be (Live @ Jills veranda)](https://www.youtube.com/watch?v=rO6SkStmhGY)
+
 [I Dream a Highway](https://www.youtube.com/watch?v=GLjcUFnZjNk)
 
 [I Dream a Highway](https://www.youtube.com/watch?v=jvREUDH2BZ0)
