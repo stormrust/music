@@ -3,9 +3,13 @@
 
 [Dave Rawlings & Gillian Welch - Method Acting + Cortez The Killer](https://www.youtube.com/watch?v=gxPTQDP2bRQ)
 
+[I Dream A Highway](https://www.youtube.com/watch?v=GLjcUFnZjNk)
+
 [Gillian Welch - Time (The Revelator)](https://www.youtube.com/watch?v=jdYG-Nh_AxU)
 
 [Gillian Welch - Hard Times](https://www.youtube.com/watch?v=k35haKwqY14)
+
+[Gillian Welch at Old Hickory, 1997 - Full Show](https://www.youtube.com/watch?v=tpkeFRm4AGA)
 
 ### Mandolin Orange
 
