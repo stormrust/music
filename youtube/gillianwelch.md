@@ -3,7 +3,9 @@
 
 [Dave Rawlings & Gillian Welch - Method Acting + Cortez The Killer](https://www.youtube.com/watch?v=gxPTQDP2bRQ)
 
-[I Dream A Highway](https://www.youtube.com/watch?v=GLjcUFnZjNk)
+[I Dream a Highway](https://www.youtube.com/watch?v=GLjcUFnZjNk)
+
+[I Dream a Highway](https://www.youtube.com/watch?v=jvREUDH2BZ0)
 
 [Gillian Welch - Time (The Revelator)](https://www.youtube.com/watch?v=jdYG-Nh_AxU)
 
