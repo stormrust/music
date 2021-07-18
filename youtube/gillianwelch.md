@@ -3,6 +3,12 @@
 
 [Dave Rawlings & Gillian Welch - Method Acting + Cortez The Killer](https://www.youtube.com/watch?v=gxPTQDP2bRQ)
 
+[Gillian Welch & David Rawlings on Sessions At West 54th Street (1997)](https://www.youtube.com/watch?v=lNj9zzVaPzs)
+
+[Gillian Welch interview](https://www.youtube.com/watch?v=kLnfdwEwKuM)
+
+[Gillian Welch - Revelator - BBC Concert](https://www.youtube.com/watch?v=4gEc5Pq50xo)
+
 [Gillian Welch and Dave Rawlings - The way it will be (Live @ Jills veranda)](https://www.youtube.com/watch?v=rO6SkStmhGY)
 
 [I Dream a Highway](https://www.youtube.com/watch?v=GLjcUFnZjNk)
