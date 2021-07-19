@@ -21,6 +21,12 @@
 
 [Gillian Welch at Old Hickory, 1997 - Full Show](https://www.youtube.com/watch?v=tpkeFRm4AGA)
 
+##### Gillian Welch Live Performances
+
+[Gillian Welch & David Rawlings Des Moines, Iowa 2007 08 12](https://www.youtube.com/watch?v=q7sgxbeszp0)
+
+[Gillian Welch 2007-06-15 Bonnaroo - Great Stage Park - Manchester, TN (pro-shot)](https://www.youtube.com/watch?v=rhkEvk2PF08)
+
 ### Mandolin Orange
 
 [Mandolin Orange - Boots of Spanish Leather (Bob Dylan Cover) - Audiotree Live](https://www.youtube.com/watch?v=iOHkyZ62jjQ)
