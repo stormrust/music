@@ -152,7 +152,9 @@ Cause I don't know what tomorrow brings
 It's alive with such possibilities  
 But I know that I feel better when I sing  
 Burdens are lifted from me  
-That's my voice rising  
+That's my voice rising
+
+
 So T-Bone, please keep the tape rolling  
 Gil, keep strumming that guitar  
 We need a record of our failures  
@@ -166,15 +168,21 @@ It's full of such possibilities
 But I know that I feel better when I sing  
 Burdens are lifted from me  
 That's my voice rising  
+
+
 It's not a movie, no private screening  
-This method acting--I call it living  
+This method acting, I call it living  
 It's like a fountain, the door is open  
 We have a problem with no solution  
 But to love and to be loved  
+
+
 So thank you friends for the time we've shared  
 Your love stays with me like sunlight and air  
 And though I truly wish I could keep hanging around here  
 My joy is covering me, soon I will disappear  
+
+
 He came dancing across the water  
 With his galleons and guns  
 Looking for the new world  
@@ -191,6 +199,8 @@ And the women all looked beautiful
 And the men stood straight and strong  
 They offered life in sacrifice  
 So that others could go on  
+
+
 Hate was just a legend  
 And war was never known  
 The people worked together  
