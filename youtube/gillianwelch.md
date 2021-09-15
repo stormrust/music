@@ -131,3 +131,77 @@ A silver vision, come and bless my soul
 I dream a highway back to you  
 
 [ref for I dream a Highway](https://www.google.com/search?q=gillian+welch+lyrics+I+dream+a+Highway+back+to+you&oq=gillian+welch+lyrics+I+dream+a+Highway+back+to+you)
+
+#### Method Acting / Cortez The Killer
+
+There's no beginning to the story  
+A bookshelf sinks into the sand  
+And a language learned, forgot in turn  
+Studied once again  
+It's a shocking bit of footage  
+Viewed on a shitty TV screen  
+You can squint at it  
+The snow and static  
+To make out what it means  
+And keep stretching that antenna  
+Hoping that it will come clear  
+I need some reception  
+A higher message  
+Please tell me what to feel  
+Cause I don't know what tomorrow brings  
+It's alive with such possibilities  
+But I know that I feel better when I sing  
+Burdens are lifted from me  
+That's my voice rising  
+So T-Bone, please keep the tape rolling  
+Gil, keep strumming that guitar  
+We need a record of our failures  
+We must document our love  
+I sat too long in my silence  
+Grown too old on my pain  
+To shed this skin, be born again  
+It starts with an ending  
+And I don't know what tomorrow brings  
+It's full of such possibilities  
+But I know that I feel better when I sing  
+Burdens are lifted from me  
+That's my voice rising  
+It's not a movie, no private screening  
+This method acting--I call it living  
+It's like a fountain, the door is open  
+We have a problem with no solution  
+But to love and to be loved  
+So thank you friends for the time we've shared  
+Your love stays with me like sunlight and air  
+And though I truly wish I could keep hanging around here  
+My joy is covering me, soon I will disappear  
+He came dancing across the water  
+With his galleons and guns  
+Looking for the new world  
+In the palace in the sun  
+On the shore lay Montezuma  
+With his coca leaves and pearls  
+In his halls, he often wondered  
+The secrets of the world  
+And his subjects gathered round him  
+Like the leaves around a tree  
+In their clothes of many colors  
+For the angry gods to see  
+And the women all looked beautiful  
+And the men stood straight and strong  
+They offered life in sacrifice  
+So that others could go on  
+Hate was just a legend  
+And war was never known  
+The people worked together  
+And they lifted many stones  
+Then they carried them to the flatlands  
+But they died along the way  
+And they built up with their bare hands  
+What we still can't do today  
+And I know she's living there  
+And she loves me to this day  
+I just can't remember when  
+Or how I lost my way  
+
+[ref for Method Acting / Cortez The Killer](https://genius.com/Dave-rawlings-machine-method-acting-cortez-the-killer-lyrics)
