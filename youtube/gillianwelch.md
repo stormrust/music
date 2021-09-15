@@ -39,6 +39,8 @@
 
 [Mandolin Orange - Life on a String and House of Stone (Live HD)](https://www.youtube.com/watch?v=QLxtgKUEHYU)
 
+## Lyrics
+
 #### I dream a Highway
 
 Oh, I dream a highway back to you, love   
